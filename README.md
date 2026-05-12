@@ -12,3 +12,5 @@
            ˚★
  𓏼 🫐ᧆ。✿ ㅅ `͈ 𓏼 ) 
 徐 ̣̣̥  nɑ𓈒ოᧉ  ‿ ͜🎐: ◌ຽ
+
+https://github.com/cloudylilrainskyz/cloudylilrainskyz/blob/main/3764BF17-8DBE-476F-9A89-EEB6E709413E.gif?raw=true
